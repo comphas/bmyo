@@ -1,0 +1,2 @@
+# bmyo
+bozkir meslek yuksekokulu
